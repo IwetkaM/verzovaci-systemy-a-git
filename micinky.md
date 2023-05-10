@@ -1,4 +1,4 @@
-# Čtyři koťata
+# jsem v pasti
 čiči čiči, toto fičí!
 Bumtarata na vrata,
 máme čtyři koťata.
